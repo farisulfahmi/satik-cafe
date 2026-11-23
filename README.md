@@ -4,4 +4,4 @@
 - Farisul Fahmi
 - Hania Latif
 - Salsabila
-- Kamelia
+- Kamalia
